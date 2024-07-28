@@ -1,2 +1,2 @@
-Profil w trakcie aktualizacji – aktualnie firma przechodzi kryzys tożsamości. 
+Profil w trakcie aktualizacji – firma przechodzi kryzys tożsamości. 
 Prosimy o chwilę cierpliwości.
